@@ -1,1 +1,2 @@
-Hello Github user . I'm Ramazan . I'm young EDM Music Producer & Beatmaker . And I'm the graphic designer )
+Hello Github User 
+Good Bye Github User
